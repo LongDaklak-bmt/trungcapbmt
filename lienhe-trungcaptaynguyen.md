@@ -1,6 +1,6 @@
 # LIÊN HỆ VỚI CHÚNG TÔI
 
-## TRƯỜNG TRUNG CẤP BUÔN MA THUỘT
+## TRƯỜNG TRUNG CẤP BUÔN MA THUỘT - [Trường dạy lái xe tại Daklak](https://bmtc.edu.vn/)
 
 - **Địa chỉ:** [131 Phan Huy Chú, Phường Khánh Xuân, Thành phố Buôn Ma Thuột, Đắk Lắk](https://www.google.com/maps/place/Tr%C6%B0%E1%BB%9Dng+Trung+c%E1%BA%A5p+B%C3%ACnh+Minh/@12.6418916,107.9949524,1723m/data=!3m1!1e3!4m6!3m5!1s0x31721dca05a54b19:0x9f890413dc8469d6!8m2!3d12.6418914!4d108.0031923!16s%2Fg%2F11vlddtgwd?entry=ttu&g_ep=EgoyMDI1MDIxOC4wIKXMDSoASAFQAw%3D%3D)
 - **Hotline:** [0262 368 5533](tel:02623685533)
