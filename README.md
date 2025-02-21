@@ -18,6 +18,7 @@ Trước đây, nhà trường chủ yếu đào tạo lái xe hạng B. Hiện 
 Với đội ngũ giảng viên giàu kinh nghiệm, chương trình đào tạo thực tiễn và môi trường học tập hiện đại, Trường dạy lái xe tại Daklak - Trường Trung cấp Buôn Ma Thuột cam kết mang đến chất lượng đào tạo tốt nhất, đáp ứng nhu cầu nhân lực trong khu vực và cả nước.
 
 📍 **Địa chỉ:** [Số 131 Phan Huy Chú, Phường Khánh Xuân, Thành phố Buôn Ma Thuột, Tỉnh Đắk Lắk](https://maps.app.goo.gl/wtWuLPik5dgZwwLW9)
+
 📞 **Hotline:** 0262.368.5566  
 🌐 **Website:** [www.bmtc.edu.vn](http://www.bmtc.edu.vn)
 
