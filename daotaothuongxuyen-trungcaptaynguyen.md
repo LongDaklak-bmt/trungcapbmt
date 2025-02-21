@@ -50,7 +50,7 @@ Chương trình [đào tạo lái xe](https://bmtc.edu.vn/lai-xe-hang-b/) ô tô
 - Tổ chức, thực hiện và chịu trách nhiệm với công việc của mình.
 
 ### **4. Cơ hội việc làm**
-- Làm [lái xe]((https://bmtc.edu.vn/lai-xe-hang-b/)) tại các cơ quan, doanh nghiệp trong và ngoài nước.
+- Làm [lái xe](https://bmtc.edu.vn/lai-xe-hang-b/) tại các cơ quan, doanh nghiệp trong và ngoài nước.
 - Mở rộng cơ hội nghề nghiệp trong lĩnh vực vận tải.
 
 ---
