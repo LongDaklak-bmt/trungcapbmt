@@ -1,6 +1,6 @@
 # Tổng quan
 
-## Giới thiệu [Trường dạy lái xe tại Daklak](https://bmtc.edu.vn/)
+## Giới thiệu [Trường Trung cấp Buôn Ma Thuột - Trường dạy lái xe tại Daklak](https://bmtc.edu.vn/)
 
 
 Trường dạy lái xe tại Daklak - Trường Trung cấp Buôn Ma Thuột được cấp Giấy chứng nhận đăng ký hoạt động giáo dục nghề nghiệp vào ngày 24/01/2025, căn cứ theo Quyết định số 848/QĐ-UBND của Chủ tịch UBND tỉnh Đắk Lắk về việc thành lập Trường Trung cấp Nghề Bình Minh và Quyết định số 339/QĐ-UBND về việc đổi tên thành Trường Trung cấp Buôn Ma Thuột.
