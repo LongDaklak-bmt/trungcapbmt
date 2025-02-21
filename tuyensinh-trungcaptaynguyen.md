@@ -21,15 +21,15 @@
 
 ## Vị Trí Việc Làm Sau Tốt Nghiệp
 
-### Đối với ngành Công nghệ kỹ thuật ô tô:
+### Đối với [ngành Công nghệ kỹ thuật ô tô](https://bmtc.edu.vn/chuong-trinh-dao-tao-nganh-cong-nghe-ky-thuat-o-to/):
 - Làm việc tại các gara, xưởng sửa chữa ô tô, các trung tâm bảo hành của các hãng xe ô tô.
 - Các cơ sở kinh doanh, buôn bán ô tô và phụ tùng xe ô tô.
 - Các nhà máy lắp ráp ô tô, nhà máy sản xuất linh kiện và các công ty vận tải.
 
-### Đối với ngành Kỹ thuật chế biến món ăn:
+### Đối với [ngành Kỹ thuật chế biến món ăn](https://bmtc.edu.vn/chuong-trinh-dao-tao-nghanh-ky-thuat-che-bien-mon-an/)
 - Làm việc tại các nhà hàng, khách sạn hoặc mở các nhà hàng kinh doanh dịch vụ ăn uống.
 
-### Đối với ngành Dịch vụ chăm sóc gia đình:
+### Đối với [ngành Dịch vụ chăm sóc gia đình](https://bmtc.edu.vn/chuong-trinh-dao-tao-nganh-dich-vu-cham-soc-gia-dinh/):
 - Làm việc tại các gia đình: giúp việc nhà, chăm sóc người già, người ốm, trẻ nhỏ.
 - Các cơ sở dưỡng lão, các cơ sở dịch vụ chăm sóc các đối tượng xã hội, cơ sở chăm sóc người tàn tật.
 - Tham gia xuất khẩu lao động tại nước ngoài.
